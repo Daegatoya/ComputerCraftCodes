@@ -3,7 +3,7 @@ http://www.9minecraft.net/computercraft-mod/
 
 ---
 
-**With love, Elizabeth** ❤️
+**With love, Daegatoya** ❤️
          
 <p align="center">
 
